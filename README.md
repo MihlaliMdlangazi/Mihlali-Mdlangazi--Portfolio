@@ -1,6 +1,6 @@
 # Mihlali Mdlangazi
 
-**Final-Year IT Student** | Khayelitsha, 7784
+**SOFTWARE DEVELOPER | DATA ANALYST** | Khayelitsha, 7784
 
 [📧 222035749@mycput.ac.za](mailto:222035749@mycput.ac.za) | [📱 0760913647](tel:0760913647) | [🔗 LinkedIn](https://linkedin.com/in/mihlali-mdlangazi-94075b234) 
 
